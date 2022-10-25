@@ -1,3 +1,3 @@
-[![image.webp](https://i.postimg.cc/5Nhqgj0M/image.webp)](https://postimg.cc/6yhv5WnH)
+[![image.webp](https://i.postimg.cc/rpm1F4Zx/image.webp)](https://postimg.cc/TKzLtK63)
 
 Рыр-фыр
