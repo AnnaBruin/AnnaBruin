@@ -1,2 +1,3 @@
-[![image.jpg](https://i.postimg.cc/Gt1dzkZy/image.jpg)](https://postimg.cc/349sxDr8)
+[![image.webp](https://i.postimg.cc/2jH0Qzhz/image.webp)](https://postimg.cc/MXQ0xJ94)
+
 Рыр-фыр
